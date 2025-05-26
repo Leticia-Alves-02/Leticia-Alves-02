@@ -1,2 +1,2 @@
-## Oii, meu nome é Amanda 
+## Oii, meu nome é Leticia.
 ## Seja bem vindo ao meu perfil.
